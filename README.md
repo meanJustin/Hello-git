@@ -15,7 +15,8 @@ Mr.Kang
 https://www.linkedin.com/in/jackie-lee-59175b18a/
 Mr.Wind
 https://github.com/beyond7
-
+James Liu
+live:.cid.2a1845326ce70ac
 
 
 My fiverr account
@@ -25,7 +26,7 @@ MeanJustin
 Psh1998623
 
 
-
+jacky:karlo.pro.113@yandex.com
 
 
 
