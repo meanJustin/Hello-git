@@ -13,6 +13,7 @@ Thanks
 
 Mr.Kang
 https://www.linkedin.com/in/jackie-lee-59175b18a/
+
 Mr.Wind
 https://github.com/beyond7
 James Liu
@@ -20,6 +21,21 @@ live:.cid.2a1845326ce70ac
 
 Mr.ByonHuaSong
 maurits312
+
+Mr.KangHyonChol
+live:.cid.a8ad0c41e6f167f7
+Exception Group
+
+Mr.SoChongHyok
+live:.cid.a039853903cf3808
+Developer01
+
+Mr.SinChol
+(SkypeID) TopWebFullDev / melvinlunder@gmail.com / schurkodev@gmail.com
+
+
+
+
 
 My fiverr account
 
