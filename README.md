@@ -48,3 +48,9 @@ jacky:karlo.pro.113@yandex.com
 
 
 
+
+Alexander Kruysta
+
+Upwork: Email - italexx.cz@gmail.com Password is Susha7899
+Freelancer: Email - italexx.us@gmail.com Password is Susha7899
+
