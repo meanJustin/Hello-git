@@ -54,3 +54,7 @@ Alexander Kruysta
 Upwork: Email - italexx.cz@gmail.com Password is Susha7899
 Freelancer: Email - italexx.us@gmail.com Password is Susha7899
 
+780825139/win-livfrvqfmko
+administrator: hdmiout12
+Anydesk
+
